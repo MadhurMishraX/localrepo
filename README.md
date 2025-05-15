@@ -1,1 +1,1 @@
-# This is my Local Repo
+# This is my Local Repo ^__^ (Its awkward to just copy wht teacher is telling, lemme add some fun) <br> (～￣▽￣)～
